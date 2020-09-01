@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-
+I'm a Full-Stck Developer working in Charlotte, NC.
 
 - 🔭 I’m currently working on a top secret mission 🕵️‍♀️
 - 👍 Feel free to checkout my projects! 🔍
